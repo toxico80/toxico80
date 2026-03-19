@@ -34,7 +34,7 @@
 ---
 
 ## 📫 Contact Me
-- 📧 Email: your-email@gmail.com  
+- 📧 Email: stiwadrsilva18@gmail.com 
 - 🌎 Location: Dominican Republic 🇩🇴  
 
 ---
